@@ -14,7 +14,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/fernandachoreno/](https://www.linkedin.com/in/fernandachoreno/)
 
-- ⚡ Fun fact **I love nature and**
+- ⚡ Fun fact **I love nature, riding horses, going to the gym and reading**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
